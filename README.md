@@ -1,0 +1,1 @@
+# apastra-word
